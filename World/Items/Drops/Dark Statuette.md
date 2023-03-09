@@ -1,0 +1,8 @@
+#BlackSerpents #AbyssHerald #AbyssLector #Irmin 
+
+![[Item_Dark_Statuette.webp]]
+
+## Description : 
+
+An idol made in the likeness of some unknown, one-eyed person.  
+You can feel a strange warmth emanating from within as you hold onto it, like the shoulder of a dear friend. Perhaps this icon can indeed give people who understand its significance the courage to carry on.

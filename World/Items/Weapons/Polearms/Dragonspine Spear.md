@@ -1,0 +1,31 @@
+#Polearm #Durin #Dragonspine 
+
+> A spear created from the fang of a dragon. It is oddly warm to the touch.
+
+![[Weapon_Dragonspine_Spear_2nd_3D.webp]]
+
+## Archive Entry
+
+[[Durin|He]] had a very, very long dream...
+
+He dreamed that he and everyone else had gone on a long, long journey,  
+Into [a land](https://genshin-impact.fandom.com/wiki/Mondstadt "Mondstadt") where green grass grew, and where soulful songs were sung.  
+He dreamed that he sang along with the gentle people of this land,  
+And danced in the skies with [a dragon](https://genshin-impact.fandom.com/wiki/Dvalin "Dvalin") as beauteous as a jewel.
+
+When he opened his eyes, he was in the sky above [a mountain](https://genshin-impact.fandom.com/wiki/Dragonspine "Dragonspine") swept by roaring snowstorms.  
+The green, tranquil land had already been painted crimson by fire and blood,  
+And the song of that [sky-blue bard](https://genshin-impact.fandom.com/wiki/Venti "Venti")'s lyre was almost drowned in the howling tumult.  
+And that bejeweled, lovely dragon, like a tender lover,  
+Had now pierced his neck through with its sharp fangs.
+
+"Farewell, [[Rhinedottir|Mother]] My journey is ended."  
+"I shall sleep beneath this white, shining silver... and perhaps this, too, is good."  
+"Farewell, O lovely bard! And farewell, O lovely dragon!"  
+"Would that we had met in a different time and place,"  
+"To meet, to sing and dance together!"  
+So he thought most sincerely as he lay dying.
+
+"Now then, this great blessing that pulses through my veins,"  
+"And lovely sight of the dark universe that gave me birth..."  
+"They are now yours to inherit."

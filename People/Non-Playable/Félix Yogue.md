@@ -1,0 +1,2 @@
+![[NPC_F lix_Yogue.webp|225]]
+**Félix Yogue** is an event-exclusive [NPC](https://genshin-impact.fandom.com/wiki/NPC "NPC") that appears in the [Evermotion Mechanical Painting](https://genshin-impact.fandom.com/wiki/Evermotion_Mechanical_Painting "Evermotion Mechanical Painting") event,inventor of the Evermotion Mechanical Painting

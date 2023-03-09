@@ -1,0 +1,35 @@
+#PrimordialOne #God #Istaroth #Shades
+
+> The Primordial One, the great sovereign, began the creation of heaven and earth for "our" sake — that of its creations which it cherished most, who would soon appear upon this earth. - A scribe of Istaroth, [[Before Sun and Moon]]
+
+The **Primordial One** is the progenitor god who allegedly came to [Teyvat](https://genshin-impact.fandom.com/wiki/Teyvat "Teyvat") from another world. It battled against and defeated the [[Seven Sovereigns]] who ruled over the old world. After its victory, it went on to create the heavens and earth "for the sake of humanity."
+
+According to the scribe of [Istaroth](https://genshin-impact.fandom.com/wiki/Istaroth "Istaroth") who wrote [[Before Sun and Moon]], the Primordial One may be [Phanes](https://genshin-impact.fandom.com/wiki/Phanes "Phanes").
+
+### Personality
+
+The Primordial One held humanity in high esteem, creating the heavens and earth in a way that would be suitable for humanity. According to the scribe, "As long as they (humans) were happy, it too rejoiced." However, it had also laid down a ban preventing the trapped [Enkanomiyans](https://genshin-impact.fandom.com/wiki/Enkanomiya "Enkanomiya") from returning to the surface, suggesting it was not completely benevolent towards humans.
+
+## Story
+
+In the time period known as "When the Doves Held Branches," the emergence of the "eternal throne of the heavens" caused the world to be remade, separating its "microcosm" from the universe. The Primordial One appeared to do battle against the Seven Sovereigns and, to that end, created [four shining shades](https://genshin-impact.fandom.com/wiki/Four_Shades "Four Shades") of itself. One of the shades was [Istaroth](https://genshin-impact.fandom.com/wiki/Istaroth "Istaroth"), who held dominion over time and wind. After 40 years, the Primordial One emerged victorious over the Seven Sovereigns and set about creating the heavens and earth to prepare for the advent of humanity. Humans were finally created 400 years after the Primordial One's appearance, and they made a covenant with the Primordial One.
+
+The Primordial One had a sacred plan for humanity; the scribe of Istaroth calls the year after humanity made a covenant with the Primordial One the "Year of the Ark's Opening." It was followed by the "Year of Jubilee," during which the world would provide its bounties for humanity. The only taboo was to succumb to temptation.
+
+An unknown amount of time after the creation of humanity, the [Second Who Came](https://genshin-impact.fandom.com/wiki/Second_Who_Came "Second Who Came") — the second throne of the heavens — appeared and restarted the war. The heavens and earth were torn apart, and during this period of strife, [[Enkanomiya]] dropped into the watery abyss. Despite the people's laments, the Primordial One and three of its shades did not respond; only Istaroth did not forsake them.
+
+Two years after the creation of the [Dainichi Mikoshi](https://genshin-impact.fandom.com/wiki/Dainichi_Mikoshi "Dainichi Mikoshi"), people from Enkanomiya attempted to find a way back to the surface. However, they discovered that heaven's "powers of prohibition" prevented them from returning. The scribe of Istaroth believed this ban was laid down by the Primordial One and that it had prevailed over the Second Who Came, while [Eboshi](https://genshin-impact.fandom.com/wiki/Eboshi "Eboshi") attributes it to the "heavenly order" but does not indicate who is behind the heavenly order. By the time of the [Archon War](https://genshin-impact.fandom.com/wiki/Archon_War "Archon War"), these powers of prohibition had weakened, allowing [[Orobashi]] to fall into Enkanomiya and conversely, bring the people of Enkanomiya back to the surface.
+
+## Trivia
+
+-   The Primordial One may be the creator who has not yet returned, mentioned in the [Traveler](https://genshin-impact.fandom.com/wiki/Traveler "Traveler")'s [Character Details](https://genshin-impact.fandom.com/wiki/Traveler/Lore#Character_Details "Traveler/Lore").
+-   In [Hilichurlian](https://genshin-impact.fandom.com/wiki/Hilichurlian "Hilichurlian"), the word "[unu](https://genshin-impact.fandom.com/wiki/Unu "Unu")" means "one" and is also a holy word that is used for the [hilichurls](https://genshin-impact.fandom.com/wiki/Hilichurls "Hilichurls")' concept of gods and the origin of life.) While no direct connection has been made between hilichurls, the single unified civilization that once existed across the world, and the Primordial One, the hilichurls' gravitation to ancient ruins has been observed and their link between the concepts of "one" and "god" has not been perpetuated in human cultures on Teyvat.
+-   While the world of Teyvat has largely been inspired by [Gnosticism](http://en.wikipedia.org/wiki/Gnosticism "wikipedia:Gnosticism"), the Primordial One has not been clearly linked to a Gnostic figure. If it is inspired by Gnosticism, the Primordial One may be analogous to either the [Monad](http://en.wikipedia.org/wiki/Monad_(Gnosticism) "wikipedia:Monad (Gnosticism)"), the Supreme Being from whom various realms and divine entities emanated; or the [Demiurge](http://en.wikipedia.org/wiki/Demiurge "wikipedia:Demiurge"), a lesser deity who fashioned the material world and believes himself to be the Supreme Being, but is unaware of the existence of the higher Monad.
+-   The original Chinese version, as well as the Japanese and Korean versions, uses a polite expression to describe the name, probably indicating Enkanomiya historians' (and/or their society's) reverence toward this deity.
+-   During [A Toast to Victory](https://genshin-impact.fandom.com/wiki/A_Toast_to_Victory "A Toast to Victory"), the final quest of [Chapter III](https://genshin-impact.fandom.com/wiki/Chapter_III "Chapter III"): [Act V](https://genshin-impact.fandom.com/wiki/Akasha_Pulses,_the_Kalpa_Flame_Rises "Akasha Pulses, the Kalpa Flame Rises"), [Buer](https://genshin-impact.fandom.com/wiki/Lesser_Lord_Kusanali "Lesser Lord Kusanali") reveals that throughout Teyvat's history there were four Descenders, visitors from outside of Teyvat, she suspects that the very first [Descender](https://genshin-impact.fandom.com/wiki/Descender "Descender") could be the [Heavenly Principles](https://genshin-impact.fandom.com/wiki/Celestia "Celestia"), this could be referring to the Primordial One and their arrival to Teyvat as it was said that they arrived from outside of Teyvat.
+
+### Etymology
+
+-   The Chinese name for the Primordial One uses the character 原 "original, primordial," which is used in two other notable terms:
+    -   [Allogenes](https://genshin-impact.fandom.com/wiki/Allogenes "Allogenes") (Chinese: 原神 "Primordial God, Original God"), which is the game's namesake (_Genshin_ is a romanization of the Japanese reading of the same word)
+    -   [Primogem](https://genshin-impact.fandom.com/wiki/Primogem "Primogem") (Chinese: 原石 "Primordial Stone"), an item which is described as something "beyond the mundane world," and which "shines with the condensed hopes and dreams of universes that once were."

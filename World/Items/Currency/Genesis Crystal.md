@@ -1,0 +1,5 @@
+
+
+![[Item_Genesis_Crystal.webp]]
+
+An energy crystal from the very origin of the universe. Formed from within nothingness out of pure potential and hope, it contains enough energy to create a newborn star.

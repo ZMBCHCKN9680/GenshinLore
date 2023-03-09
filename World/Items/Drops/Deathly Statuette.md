@@ -1,0 +1,9 @@
+#BlackSerpents #AbyssHerald #AbyssLector #Irmin 
+
+![[Item_Deathly_Statuette.webp]]
+
+## Description : 
+
+A one-eyed carving that emanates an ominous energy, with no indication of what it's made of.  
+As you gaze upon this idol, you can almost hear a strange, comforting whisper...  
+"See, my child. All that lies under the throne of heaven shall be destroyed by upheaval. The eternal peace of the pitch-dark void shall embrace us all."

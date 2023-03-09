@@ -1,0 +1,1 @@
+"And God saith, 'Let there be a firmament in the midst of the waters, and let it divide the waters from the waters.'" ([Genesis 1:6](https://mechon-mamre.org/p/pt/pt0101.htm#6)).
